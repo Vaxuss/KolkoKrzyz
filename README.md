@@ -1,0 +1,2 @@
+# KolkoKrzyz
+Głupia rzecz
